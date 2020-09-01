@@ -2,7 +2,7 @@
 
 **Section 1: _First impression of teacher_**
 
-(about how fierce she looked?)
+(about how fierce she looked?) (quiet, sitting at the side with ms ng, did not really talk or laugh, giving of the impression of being stern)
 
 **Section 2: _First lesson with teacher_**
 
